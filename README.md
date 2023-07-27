@@ -8,5 +8,5 @@
 * 🍀 Curretly doing a course on full stack developer
 * ⛑️ Looking for help in COMPETITIVE CODING🥺
 * ✨ My dream is to put my skills and knowledge gained into use and make something productive that can solve problems our world is dealing with
-* 📬 Reach me out on [Instagram](www.instagram.com/shuaib_6428/) or [Linkedin](www.linkedin.com/in/mohd-shuaib6428) 
+* 📬 Reach me out on [Instagram](https://www.instagram.com/01shuaib.01/) or [Linkedin](www.linkedin.com/in/mohd-shuaib6428) 
 
